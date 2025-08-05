@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JanesMarekFabian
 - 👀 I’m interested in Gym Gaming and Gardening
-- 🌱 I’m currently learning Power Shell and Python
+- 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: He
