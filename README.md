@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gym Gaming and Gardening
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me janesreichel@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: Im not funny xD
 
